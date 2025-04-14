@@ -2,9 +2,9 @@
 
 # **👑Zellcy👑** 
 
-![image](https://blinkies.cafe/b/blinkiesCafe-HM.gif)
+![image](https://blinkies.cafe/b/blinkiesCafe-CI.gif)
  
-![image](https://blinkies.cafe/b/blinkiesCafe-c6.gif) ![image](https://blinkies.cafe/b/blinkiesCafe-PJ.gif)
+![image](https://blinkies.cafe/b/blinkiesCafe-CC.gif) ![image](https://blinkies.cafe/b/blinkiesCafe-Df.gif)
 
 
 
