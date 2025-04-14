@@ -11,6 +11,9 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=8x9nes88ghf4jhdi7y6weqzuw&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=8x9nes88ghf4jhdi7y6weqzuw&redirect=true)
 
 
+
+
+
 ~ **An oasis for my withered heart in this harsh reality.** ~
 
   
@@ -18,9 +21,7 @@
 
 
 ![image](https://i.pinimg.com/736x/6a/54/2d/6a542d884c94cd7ff775c1eb1c59a817.jpg)
-
-
-~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ ~ 
+ 
 
 
 ## 🎀 INTRO! 🎀
@@ -53,6 +54,18 @@ Huge pokemon fan!!! My favorite games and generation are the gen 3 games especai
 
 1. Espeon 🧿![](https://projectpokemon.org/images/normal-sprite/espeon.gif) 2. Sceptile 🎄 ![](https://projectpokemon.org/images/normal-sprite/sceptile.gif)3. Minccino 🐹 ![](https://projectpokemon.org/images/normal-sprite/minccino.gif)4. Jirachi 🌠![](https://projectpokemon.org/images/normal-sprite/jirachi.gif)5. Mareanie 🔱![](https://projectpokemon.org/images/normal-sprite/mareanie.gif)
 
+ <div align="center">
+
+## ⚕️Overwatch <3⚕️
+![image](https://files.catbox.moe/0wmc0l.png)
+
+My favorite FPS of all time... I KNOW IT'S KINDA BAD NOW BUT I CAN'T LET GO!! I started playing when it first came out in 2016 and have been playing ever since :3 I've took a lot of breaks and made alot of different accounts lol Im mostly a Hitscan player but I have a soft spot for Genji :3 Currently Plat 3 but I can hit diamond if i just lock in!
+
+[<ins>MY ACCOUNT!</ins>](https://overwatch.blizzard.com/en-us/career/c85ba0c7e220c9f4ba%7Ce957820c644ff3b00e0d35b419528854/)
+
+<ins>**Me and Widowmaker are getting married 🙏**</ins>
+
+![](https://files.catbox.moe/t3nk3y.gif)
 
 
 
