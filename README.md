@@ -52,7 +52,7 @@ Huge pokemon fan!!! My favorite games and generation are the gen 3 games especai
 
 <div align="left">
 
-1. Espeon 🧿![](https://projectpokemon.org/images/normal-sprite/espeon.gif) 2. Sceptile 🎄 ![](https://projectpokemon.org/images/normal-sprite/sceptile.gif)3. Minccino 🐹 ![](https://projectpokemon.org/images/normal-sprite/minccino.gif)4. Jirachi 🌠![](https://projectpokemon.org/images/normal-sprite/jirachi.gif)5. Mareanie 🔱![](https://projectpokemon.org/images/normal-sprite/mareanie.gif)
+1. Espeon🧿![](https://projectpokemon.org/images/normal-sprite/espeon.gif) 2. Sceptile🎄 ![](https://projectpokemon.org/images/normal-sprite/sceptile.gif)3. Minccino🐹 ![](https://projectpokemon.org/images/normal-sprite/minccino.gif)4. Jirachi🌠![](https://projectpokemon.org/images/normal-sprite/jirachi.gif)5. Mareanie🔱![](https://projectpokemon.org/images/normal-sprite/mareanie.gif)
 
  <div align="center">
 
