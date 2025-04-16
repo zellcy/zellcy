@@ -2,6 +2,11 @@
 
 # **👑Zellcy👑** 
 
+</p>
+    <p align="center">
+    <a href="https://stats.fm/zelisnuts">
+    <img width="270" src="readmeassets/blinkiesCafe-Q3.gif">
+    </a>
  
 ![image](https://blinkies.cafe/b/blinkiesCafe-CC.gif) ![image](https://blinkies.cafe/b/blinkiesCafe-Df.gif)
 
