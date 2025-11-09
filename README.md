@@ -42,13 +42,6 @@ Zellcy or Zel wtv is friggin dope 💜 big music fan and super open to new genre
 
   ![image](https://i.pinimg.com/236x/af/26/d0/af26d0ebd4bf331e3c4475e336772369.jpg)
 
- ## 🍓 Celeste 🍓
-
- Super new to celeste but im working on speedrunning it rn! I still have to 100% the full game aswell though lol :3 Im like halfway through Farewell ill finish it soon! 
- Still havent done a full run but ill upload my chapter PB's and full any% pbs on here eventually
-
- ![image](https://files.catbox.moe/brqx6n.gif)
-
 ## ⭐Pokemon!⭐
 
 Huge pokemon fan!!! My favorite games and generation are the gen 3 games especailly pokemon emerald! <ins>**Grass starter loyalist!!**</ins> 💚🌲 (except chikorita 😓)
